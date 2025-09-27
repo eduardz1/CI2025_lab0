@@ -2,4 +2,4 @@
 
 # Bibliography
 
-- Aquisti, D. (1980). (p. 154). Napoleone.
+- Aquisti, D. (1980). LE BARZELLETTE DI PIERINO (p. 154) [Review of LE BARZELLETTE DI PIERINO]. Napoleone.
